@@ -1,4 +1,101 @@
 # EDM-Promo
 
+Promo list to send your EDM demos to Record Labels / Producers
 
-EDM Producers email to send your tracks
+## DJ Producers	
+	
+- Adam Rickfors 	promo@adamrickfors.com
+- Adrien Mezsi 	promos@adrienmezsi.com
+- Aleksandar Galoski 	promo@aleksandargaloski.com
+- Amersy 	promo@amersy.net
+- Anevo 	anevopromo@gmail.com
+- Arin Tone 	promo@arintone.com
+- Arston 	arstonpromo@gmail.com
+- Avicii 	aviciipromo@gmail.com
+- Chris Avantgrade 	chrisavantgardepromos@gmail.com
+- CID 	contact@CIDmusic.com
+- Corey James 	coreyjamespromo@gmail.com
+- Cult Lewis 	promos@waywardmusicgroup.com
+- Dada Life 	promos@dadalife.com
+- Delayers 	delayers@viruststudio.com
+- Deniz Koyu 	soundcheck@denizkoyu.com
+- Digital LAB 	demos@digitallabmusic.com
+- Dimitri Vangelis & Wyman 	dvwpromo@gmail.com
+- DubVision 	info@dubvisionmusic.com
+- Dyro 	promo@dyro.nl
+- Dzeko & Torres 	info@dzekoandtorres.com
+- Far Behind 	farbehindpromo@gmail.com
+- Fedde Le Grand 	promo@feddelegrand.com
+- Felix Leiter 	djfelixleiter@gmail.com
+- Firebeatz 	promo@firebeatz.com
+- Flatdisk 	promoflatdisk@gmail.com
+- Fred Issue 	promo@fredissue.com
+- Funk Machine 	promos@thedoubledrop.com
+- Futuristic Polar Bears 	info@polarbearmusic.co.uk
+- Gazlind 	gazlindpromo@gmail.com
+- Gregor Salto 	promo@gregorsalto.com
+- Gregori Klosman 	promo@gregoriklosman.com
+- Hardwell 	info@djhardwell.com
+- Henrix 	promos@henrixmusic.com
+- Henry Fong 	henryfongmusic@gmail.com
+- HIIO 	promos@hiio.net
+- Jebu 	promo@itsjebu.com
+- Jewelz & Scott Sparks 	dropyourtuneshere@gmail.com
+- John Ross 	johnrossofficial@gmail.com
+- Juicy M 	promo@juicy
+- Julian Calor 	promo@juliancalor.com
+- Justin Luke 	promos@justinlukemusic.com
+- Ken Loi 	promos@kenloi.com
+- Kryder 	promo@kryder.co.uk
+- Laidback Luke 	promo@laidbackluke.com
+- Laurent Iacomucci 	iacomucci.laurent@gmail.com
+- Lee Carter 	leecarterdemo@hotmail.com
+- Liam Berg 	liambergcontact@gmail.com
+- Lush & Simon 	promoslushandsimon@gmail.com
+- Maarcos 	promo@maarcos.com
+- Magnificence 	promo@magnificencemusic.com
+- MAKJ 	djmakj@gmail.com
+- Madeon itsmadeon@gmail.com
+- Marc Volt 	music@marcvolt.com
+- Marcus Santoro 	marcussantorodj@gmail.com
+- Marcus Schossow 	marcusschossow@gmail.com
+- Mason?s Rave 	info@masonsrave.com
+- Matisse & Sadko 	promo@matissesadko.com
+- Matt Nash 	promo@mattnashofficial.com
+- Matteo Barr 	matteobarr@outlook.com
+- Max Vangeli 	promo@maxvangeli.com
+- Maxon 	maxonoffical@gmail.com
+- Maxum 	promo@maxummusic.com
+- Mednas 	promos@mednasmusic.com
+- Merk & Kremont 	promo@merkandkremont.it
+- Michael Brun 	michaelbrunpromo@gmail.com
+- Mikael Weermets 	music@mikaelweermets.com
+- Norman Doray 	promos@normandoray.com
+- Otto Knows 	otto@refune.com
+- Paris & Simo 	parisandsimopromo@gmail.com
+- Patric La Funk 	promoplf@gmail.com
+- Pelari 	Pelaripromos@gmail.com
+- Promise Land 	promo@djpromiseland.com
+- Qulinez 	promo@qulinez.com
+- Rebel Army 	rebelarmyy@gmail.com
+- Rovack 	promorovack@gmail.com
+- Sem Thomasson 	promo@semthomasson.com
+- Showtek 	info@showtek.nl
+- Sick Individuals 	promo@sickindividuals.com
+- Simon De Jano 	info@simondejano.com
+- Special Features 	specialfeatures@gmail.com
+- Steerner 	promo@steerner.com
+- Steve Angello 	music@sizerecords.com
+- Tannergaard 	info.tannergaard@gmail.com
+- Third Party 	promos.thirdparty@gmail.com
+- Thomas Gold 	promo@thomas
+- Thomas Newson 	info@thomasnewson.nl
+- Toby Green 	promo@tobygreen.nu
+- Tommy Trash 	info@tommytrash.com
+- Tujamo 	info@tujamo.com
+- Wayne & Woods 	promos@wayneandwoods.com
+- Will K 	promo@willk.com.au
+- Zack Edward 	promos@zackedward.com
+- Zen World 	evosounddemos@gmail.com
+- Zell Hanssen 	zellhanssen@gmail.com
+- Don Diablo 	don@dondiablo.com
