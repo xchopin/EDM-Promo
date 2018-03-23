@@ -1,4 +1,4 @@
-## DJs	
+## DJ Producers	
 	
 - Adam Rickfors 	promo@adamrickfors.com
 - Adrien Mezsi 	promos@adrienmezsi.com
@@ -51,6 +51,7 @@
 - Maarcos 	promo@maarcos.com
 - Magnificence 	promo@magnificencemusic.com
 - MAKJ 	djmakj@gmail.com
+- Madeon itsmadeon@gmail.com
 - Marc Volt 	music@marcvolt.com
 - Marcus Santoro 	marcussantorodj@gmail.com
 - Marcus Schossow 	marcusschossow@gmail.com
