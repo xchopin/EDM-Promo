@@ -11,7 +11,7 @@ Promo list to send your EDM demos to Record Labels / Producers
 - Anevo 	anevopromo@gmail.com
 - Arin Tone 	promo@arintone.com
 - Arston 	arstonpromo@gmail.com
-- Avicii 	aviciipromo@gmail.com
+- ~~Avicii 	aviciipromo@gmail.com~~ RIP Tim
 - Chris Avantgrade 	chrisavantgardepromos@gmail.com
 - CID 	contact@CIDmusic.com
 - Corey James 	coreyjamespromo@gmail.com
